@@ -1,2 +1,0 @@
-# assassinleo.github.io
-Blog
